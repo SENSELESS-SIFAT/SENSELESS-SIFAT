@@ -1,2 +1,0 @@
-# SENSELESS-SIFAT
-ss
